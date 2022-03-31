@@ -1,1 +1,1 @@
-# calc
+# Sadvakasov Danial
